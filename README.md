@@ -95,7 +95,7 @@ Successfully derived actionable insights for the client:
 **Ruthveek M R**  
 Email: [ruthmys123@gmail.com](mailto:ruthmys123@gmail.com)  
 GitHub: [github.com/RuthveekMR](https://github.com/RuthveekMR)  
-LinkedIn: [linkedin.com/in/ruthveek](https://linkedin.com/in/ruthveek) *(Add if applicable)*
+LinkedIn: [https://www.linkedin.com/in/ruthveek-m-r-0a495b1ba/](https://www.linkedin.com/in/ruthveek-m-r-0a495b1ba/)
 
 ---
 
